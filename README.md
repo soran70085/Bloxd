@@ -1,1 +1,1 @@
-https://soran70085.github.io/sorahub/
+https://soran70085.github.io/(thisRP)/
